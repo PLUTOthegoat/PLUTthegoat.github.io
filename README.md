@@ -1,1 +1,1 @@
-currently missing her rn
+i dont have lis for school ngl
